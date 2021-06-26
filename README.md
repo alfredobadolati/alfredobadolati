@@ -1,4 +1,4 @@
-### Hi there 👋Hola soy Alfredo de uruguay, sud América y estoy aquí para curosear.graciss.
+### Hi there 👋Hola soy Alfredo de Uruguay, Sud América y estoy aquí para curosear.Gracias.
 
 <!--
 **alfredobadolati/alfredobadolati** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
